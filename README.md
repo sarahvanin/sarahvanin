@@ -1,5 +1,2 @@
-oie
-sou a sarah
-amo gatinhos 
-é isso 
-beijos
+amo meu ex 
+#volta vida
